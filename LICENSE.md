@@ -1,4 +1,4 @@
-# 
+# VIP raydium trading bot plugins for Mac OS | Turbo raydium trading bot plugins for PC Windows. Featuring leverage management and dex liquidity pools — optimized for maximum performance on every platform.
 
 
 
